@@ -13,6 +13,33 @@ youtube代理fg下载
 shadowsock 安卓版4.2.5
 百度网盘小飞机功能
 威图手机中文官网
+
+## ❗❗❗ 这是很多朋友花钱、买套餐，使用后最好用最稳定的几个VPN ❗❗❗
+
+# 1.Nord梯子   [Nord官网地址](http://get.affiliatescn.net/aff_c?offer_id=153&aff_id=38201&url_id=613&aff_sub=gitlilu&aff_click_id=freetizi)
+✅推荐，曾被评为No.1，超强加密，服务器节点5000+。
+
+✅最多人再次购买的翻墙工具
+
+✅近期有超值2年套餐(3折)
+
+优势：不记录日志，2048位加密超强隐私保护，30天无理由退款等等很多，美国、德国最喜欢的VPN之一
+
+# 2.Panda梯子 [Panda官网地址](https://www.panhdpe.xyz/r/22216799)
+✅ 后起之秀，2019年的黑马，有中文团队，对中国地区的支持也比较好
+
+✅ 3天免费试用，尽情体验网络的速度、稳定性，决定是否购买
+
+✅ 近期有6个月套餐、1年套餐的特惠活动
+
+优势：无流量限制，ECC超强加密，7天无理由退款，隐私保护极好，注册甚至不需要邮箱！
+
+
+# 3.Ivacy梯子 [Ivacy官网地址](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=gitlilu&data2=freetizi)
+美国的品牌，在外网的评价不错，TOP5的水平
+
+
+
 ## 下载w加速器
 类似比特加速器
 电脑怎么连国外网站
